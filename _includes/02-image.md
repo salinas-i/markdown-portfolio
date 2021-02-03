@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![PCR meme but is actually real tho](https://i.pinimg.com/originals/45/57/da/4557da11542225428610a0676bf7ce14.jpg)
